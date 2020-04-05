@@ -4,18 +4,25 @@ Zeynep Serra Güneri 9D 178
 
                       MOZAİK PASTA TARİFİ
    MALZEMELER
+   
 •	300 gram bisküvi
 
 •	1 su bardağı süt
 
 •	3 yemek kaşığı kakao
+
 •	5 yemek kaşığı şeker
+
 •	3 yemek kaşığı tereyağı
+
 •	1 su bardağı fındık
 
    TARİF
+   
 1.Bisküvileri kırın.
+
 2.Tereyağını bir tavada eritin.
+
 3.Tüm malzemeleri karıştırın.
 4.Karışımı streç folyo arasına koyun ve rulo şeklini verin.
 5.2-3 saat buzdolabında bekletin.
