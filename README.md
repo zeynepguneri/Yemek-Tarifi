@@ -5,7 +5,9 @@ Zeynep Serra Güneri 9D 178
                       MOZAİK PASTA TARİFİ
    MALZEMELER
 •	300 gram bisküvi
+
 •	1 su bardağı süt
+
 •	3 yemek kaşığı kakao
 •	5 yemek kaşığı şeker
 •	3 yemek kaşığı tereyağı
