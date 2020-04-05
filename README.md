@@ -74,3 +74,4 @@ AİLE BİREYLERİ VÜCUT KÜTLE ENDEKSİ SONUÇLARI
 
 •	Ben    21.6441207076
 
+https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.yemeksayar.com%2Fwp-content%2Fuploads%2F2019%2F05%2FMozaik-Pasta-tarifi.jpg&imgrefurl=https%3A%2F%2Fwww.yemeksayar.com%2Fmozaik-pasta-tarifi%2F&tbnid=xXFkYQBZ_RVdXM&vet=12ahUKEwim2NKvsdLoAhVR2xoKHR6EDwwQMygPegUIARCwAg..i&docid=x50qfbcZ_bqmQM&w=617&h=338&q=mozaik%20pasta%20resmi&ved=2ahUKEwim2NKvsdLoAhVR2xoKHR6EDwwQMygPegUIARCwAg
