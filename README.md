@@ -3,6 +3,7 @@ Zeynep Serra Güneri 9D 178
 
 
                       MOZAİK PASTA TARİFİ
+   
    MALZEMELER
    
 •	300 gram bisküvi
@@ -59,8 +60,12 @@ Zeynep Serra Güneri 9D 178
 
 
 MOZAİK PASTANIN 100 GRAMINDA BULUNAN CALORİ MİKTARI: 357.79 kcal
+                      
+![](https://photos1.blogger.com/blogger/4119/1022/1600/HPIM1149.jpg)
 
 
+                      
+                      
 
                VÜCUT KİTLE İNDEKSİ
 
